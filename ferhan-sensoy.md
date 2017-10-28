@@ -1,4 +1,6 @@
-Ferhan Şensoy - Gündeste (Ortaoyucular Yayınları)
+<strike>Ferhan Şensoy - Gündeste (Ortaoyucular Yayınları)</strike>
+
+Ortaoyuncular Yayınları yeni baskı yaptı. (http://ortaoyuncular.com/tr/urun/gundeste/)
 
 Ferhan Şensoy - Kedittin Direniş (Ortaoyucular Yayınları - ISBN: 9789757904144)
 
