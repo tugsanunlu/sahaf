@@ -1,8 +1,10 @@
 Feyyaz Kayacan - Bütün Öyküleri (Yapı Kredi Yayınları - ISBN: 9789753630467)
 
-Feyyaz Kayacan - Çocuktaki Bahçe (Yapı Kredi Yayınları - ISBN: 9789750814556)
+~~Feyyaz Kayacan - Çocuktaki Bahçe (Yapı Kredi Yayınları - ISBN: 9789750814556)~~
+(Kırmızı Kedi Yayınları yeni baskısını yaptı.)
 
-Feyyaz Kayacan - Şişedeki Adam (Yenilik Yayınları)
+~~Feyyaz Kayacan - Şişedeki Adam (Yenilik Yayınları)~~
+(Kırmızı Kedi Yayınları yeni baskısını yaptı.)
 
 Feyyaz Kayacan - Sığınak Hikayeleri (Ara Yayınları, Yeditepe Yayınları)
 
